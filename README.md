@@ -1,4 +1,4 @@
-The Birth of Yourself
+The Birth of Yourself:
 A collection of poems by Julia Daher.
 
 Intended originally as just a text document on my computer, used only as a journal and nothing more,
